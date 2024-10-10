@@ -7,3 +7,7 @@ https://www.youtube.com/watch?v=SkD5muDWaxU
 Module 4: Dance Program Explanation 
 
 https://www.youtube.com/watch?v=uA74eQ_DfLQ
+
+Module 5: Programming Lesson Plan
+
+https://www.youtube.com/watch?v=ySKrvrmwNDI
