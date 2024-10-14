@@ -11,3 +11,7 @@ https://www.youtube.com/watch?v=uA74eQ_DfLQ
 Module 5: Programming Lesson Plan
 
 https://www.youtube.com/watch?v=ySKrvrmwNDI
+
+Module 7: Nested Loop Instructions
+
+https://www.youtube.com/watch?v=vyIVJ-ZaQiM
