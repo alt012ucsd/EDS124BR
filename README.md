@@ -15,3 +15,7 @@ https://www.youtube.com/watch?v=ySKrvrmwNDI
 Module 7: Nested Loop Instructions
 
 https://www.youtube.com/watch?v=vyIVJ-ZaQiM
+
+Module 8: Broadcast Instructions
+
+https://www.youtube.com/watch?v=58N--3azkNo
