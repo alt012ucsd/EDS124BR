@@ -27,3 +27,7 @@ https://www.youtube.com/watch?v=ZiMya83B_eA
 Module 11: Parson Problems 
 
 https://www.youtube.com/watch?v=uzALA5HbwLE
+
+Module 12: Repeat Until Lesson
+
+https://www.youtube.com/watch?v=rEO9loKfOY4
