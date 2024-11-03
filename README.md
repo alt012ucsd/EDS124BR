@@ -31,3 +31,7 @@ https://www.youtube.com/watch?v=uzALA5HbwLE
 Module 12: Repeat Until Lesson
 
 https://www.youtube.com/watch?v=rEO9loKfOY4
+
+Module 13: Target Exercise
+
+https://www.youtube.com/watch?v=bA2gDJYepcU
