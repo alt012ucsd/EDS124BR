@@ -35,3 +35,7 @@ https://www.youtube.com/watch?v=rEO9loKfOY4
 Module 13: Target Exercise
 
 https://www.youtube.com/watch?v=bA2gDJYepcU
+
+Module 17: Penguin Exercise
+
+https://www.youtube.com/watch?v=PfvNcVo8DNo
