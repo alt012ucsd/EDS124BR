@@ -39,3 +39,7 @@ https://www.youtube.com/watch?v=bA2gDJYepcU
 Module 17: Penguin Exercise
 
 https://www.youtube.com/watch?v=PfvNcVo8DNo
+
+Module 19: Treasure Searcher
+
+https://www.youtube.com/watch?v=Gr7_jcC_cQA
